@@ -224,4 +224,4 @@ Rainbow Six Extraction is available as a full free version with all features and
 Don’t miss out on the action! Download Rainbow Six Extraction now and join the fight against the alien invasion!
 
 ---
-**Last updated:** 2026-10-31 22:59:13 UTC
+**Last updated:** 2026-11-01 02:00:34 UTC
